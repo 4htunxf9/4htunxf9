@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=)
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=4htunxf9&label=Profile%20views&color=0e75b6&style=flat" alt="alamimran613" /> </p>
 <img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
 
 <div align="center">
