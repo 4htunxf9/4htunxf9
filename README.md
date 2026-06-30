@@ -1,6 +1,10 @@
+
 <img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
 
 <div align="center">
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines="no+matter+what,+i'll+be+no.1;i'll+beat+anyone+who+try+to+stop+me")](https://git.io/typing-svg)
+
   
 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
   
