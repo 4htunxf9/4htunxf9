@@ -1,4 +1,4 @@
-![rukawa](https://komarev.com/ghpvc/?username=)
+![](https://komarev.com/ghpvc/?username=)
 <img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
 
 <div align="center">
