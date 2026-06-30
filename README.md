@@ -1,11 +1,10 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=4htunxf9&label=Profile%20views&color=0e75b6&style=flat" alt="4htunxf9" /> </p>
-<img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=4htunxf9&label=RUKAWA&color=1e1624&style=flat" alt="4htunxf9" /> </p> 
+
+<img width="900" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
+<p align="center">
+<br><br><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com/?font=Courier+Prime&weight=500&size=15&duration=3400&pause=1200&color=225793&center=true&width=443&height=20&lines=is+it+a+crime+to+be+unsure?;in+time,+we'll+find;if+it's+sustainable;u're+pure;u're+kind;mature;divine;u+might+be+too+good+for+me,;unattainable" alt="Typing SVG" /></a>
 
 <div align="center">
-
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines="no+matter+what,+i'll+be+no.1;i'll+beat+anyone+who+try+to+stop+me")](https://git.io/typing-svg)
-
-  
 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
   
 <sub> ࣪   ۫𓂅  hi there! u can call me tunx. ⟢</sub>
