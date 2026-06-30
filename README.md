@@ -1,4 +1,4 @@
-
+![rukawa](https://komarev.com/ghpvc/?username=)
 <img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
 
 <div align="center">
@@ -8,19 +8,17 @@
   
 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
   
- ࣪   ۫𓂅  hi there! u can call me tunx. ⟢
- 
-she﹔her   𝄞݂۫   𓈒  enfp
+<sub> ࣪   ۫𓂅  hi there! u can call me tunx. ⟢</sub>
+<sub>she﹔her   𝄞݂۫   𓈒  enfp</sub>
 
-౨౿　birthday ; 06 . 12　﹒ 　︵︵
+<sub>౨౿　birthday ; 06 . 12　﹒ 　︵︵</sub>
+<sub>꒰ ᩧ 𓈒 sagittarius ♐︎ ⁄⁄͈ . ᴗ͈)</sub>
 
-‎꒰ ᩧ 𓈒 sagittarius ♐︎ ⁄⁄͈ . ᴗ͈)
+<sub>. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, csm, spy x familyִֶָ 🪽་༘࿐</sub>
 
-. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, csm, spy x familyִֶָ 🪽་༘࿐
+<sub>˚ ༘ ೀ bias: rukawa kaede (sd), kenzo tenma (monster), faker (t1), angel (csm) ⋆｡ ˚</sub>
 
-˚ ༘ ೀ bias: rukawa kaede (sd), kenzo tenma (monster), faker (t1), angel (csm) ⋆｡ ˚
-
-᠃ english isn't my first language, i dont talk much (im afraid of making others get me wrong). but im comfortable talking ^_^ ִ ᠃ 
+<sub>᠃ english isn't my first language, i dont talk much (im afraid of making others get me wrong). but im comfortable talking ^_^ ִ ᠃</sub>
 
 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 </p>
@@ -31,7 +29,7 @@ she﹔her   𝄞݂۫   𓈒  enfp
 </div>
 
 <div align="center">
-  im so in love with the emo, nonchalant, dark-haired, good at basketball, handsome, sleepy guy. i mean rukawa kaede <𝟑
+<sub>im so in love with the emo, nonchalant, dark-haired, good at basketball, handsome, sleepy guy. i mean rukawa kaede <𝟑* </sub>
 
 🏆｡𖦹°‧₊˚⊹♡🏀                                                                                                                       
 </div>                                                                                                                      
