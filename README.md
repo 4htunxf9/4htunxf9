@@ -14,7 +14,7 @@
 <sub> ࣪   ۫𓂅  hi there! u can call me tunx. ⟢</sub>
 <sub>she﹔her   𝄞݂۫   𓈒  enfp</sub>
 
-<sub>౨౿　birthday ; 06 . 12　﹒ 　︵︵</sub>
+<sub>౨౿　17 yo  ; 06/12　﹒ 　︵︵</sub>
 <sub>꒰ ᩧ 𓈒 sagittarius ♐︎ ⁄⁄͈ . ᴗ͈)</sub>
 
 <sub>. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, csm, spy x familyִֶָ </sub>
