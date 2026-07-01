@@ -47,4 +47,8 @@ $${\color{#E54646} 🏆｡𖦹°‧₊˚⊹♡🏀}$$
   <img src="https://64.media.tumblr.com/99ced947cad0243de0d8e82c4265809a/tumblr_neo82dZGTB1qho1uao1_500.gifv" width="670">
 </p>
 
-[![Spotify](https://spotify-recently-played-readme.vercel.app/api?user=9pddhdn3mfcvapx20j2gaehcd)](https://open.spotify.com/user/9pddhdn3mfcvapx20j2gaehcd)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=9pddhdn3mfcvapx20j2gaehcd&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=572b72&bar_color_cover=false" width="250px">
+  </a>
+</p>
