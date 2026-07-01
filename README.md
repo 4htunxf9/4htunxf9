@@ -3,14 +3,9 @@
   [![Hits](https://hits.sh/github.com/4htunxf9.svg?style=plastic&label=shohoku&color=ddddd1&labelColor=710216)](https://hits.sh/github.com/4htunxf9/)
 
 
-<img width="900" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
-<br><br><br>
+<img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/3de084cc-3f79-4ebe-ab4f-49422eaffb93" /><br>
 
-
-
-
-
-<div align="center">
+<br><div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=18&duration=3300&pause=500&color=cd201f&center=true&width=435&height=28&&height=20&lines=is+it+a+crime+to+be+unsure?;in+time,+we'll+find;if+it's+sustainable;u're+pure;u're+kind;mature;divine;u+might+be+too+good+for+me,;unattainable" alt="Typing SVG" width="390px"/></a>
 
   𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
@@ -38,7 +33,9 @@
 <div align="center">
 
 $${\color{#8B0016} im \space so \space in \space love \space with \space the \space emo, \space nonchalant, \space dark-haired, \space good \space at \space basketball, \space handsome, \space sleepy \space guy.}$$
+
 $${\color{#C50023} i  \space mean \space rukawa \space kaede \space <𝟑}$$
+
 $${\color{#E54646} 🏆｡𖦹°‧₊˚⊹♡🏀}$$
 <br><br><br><br>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=9pddhdn3mfcvapx20j2gaehcd&cover_image=true&theme=novatorem&show_offline=true&background_color=7c0e0e&interchange=true&profanity=true&hide_remaster=true&bar_color_cover=false&bar_color=c20027)](https://spotify-github-profile.kittinanx.com/api/view?uid=9pddhdn3mfcvapx20j2gaehcd&redirect=true)
                                                                                                                     
@@ -47,4 +44,5 @@ $${\color{#E54646} 🏆｡𖦹°‧₊˚⊹♡🏀}$$
   <img src="https://64.media.tumblr.com/99ced947cad0243de0d8e82c4265809a/tumblr_neo82dZGTB1qho1uao1_500.gifv" width="670">
 </p>
 
+<img width="902" height="276" alt="image" src="https://github.com/user-attachments/assets/f268fb47-4021-4915-8493-46d87450537f" />
 
