@@ -16,6 +16,8 @@
 <sub>౨౿　birthday ; 06 . 12　﹒ 　︵︵</sub>
 <sub>꒰ ᩧ 𓈒 sagittarius ♐︎ ⁄⁄͈ . ᴗ͈)</sub>
 
+<img alt="image-removebg-preview (7)" src="https://github.com/user-attachments/assets/7e70543c-f105-40ad-8f41-d941dfb96e9c" width="160"/>
+
 <sub>. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, csm, spy x familyִֶָ 🪽་༘࿐</sub>
 
 <sub>˚ ༘ ೀ bias: rukawa kaede (sd), kenzo tenma (monster), faker (t1), angel (csm) ⋆｡ ˚</sub>
@@ -43,6 +45,4 @@ $${\color{#E54646} 🏆｡𖦹°‧₊˚⊹♡🏀}$$
 <p align="center">
   <img src="https://64.media.tumblr.com/99ced947cad0243de0d8e82c4265809a/tumblr_neo82dZGTB1qho1uao1_500.gifv" width="670">
 </p>
-
-<img width="902" height="276" alt="image" src="https://github.com/user-attachments/assets/f268fb47-4021-4915-8493-46d87450537f" />
 
