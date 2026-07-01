@@ -17,13 +17,11 @@
 <sub>౨౿　birthday ; 06 . 12　﹒ 　︵︵</sub>
 <sub>꒰ ᩧ 𓈒 sagittarius ♐︎ ⁄⁄͈ . ᴗ͈)</sub>
 
-<img alt="image-removebg-preview (7)" src="https://i.postimg.cc/x1f5F5bB/image-Photoroom.png" width="70"/>
-
-<sub>. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, csm, spy x familyִֶָ 🪽་༘࿐</sub>
+<sub>. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, csm, spy x familyִֶָ </sub>
 
 <sub>˚ ༘ ೀ bias: rukawa kaede (sd), kenzo tenma (monster), faker (t1), angel (csm) ⋆｡ ˚</sub>
 
-<sub>᠃ english isn't my first language, i dont talk much (im afraid of making others get me wrong). but im comfortable talking ^_^ ִ ᠃</sub>
+<sub>᠃ english isn't my first language, i dont talk much (im afraid of making others get me wrong). but im comfortable talking ^_^ </sub>
 
 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 
@@ -31,10 +29,11 @@
                                                          
 $${\color{#8B0016} im \space so \space in \space love \space with \space the \space emo, \space nonchalant, \space dark-haired, \space good \space at \space basketball, \space handsome, \space sleepy \space guy.}$$
 
-$${\color{#C50023} i  \space mean \space rukawa \space kaede \space <𝟑}$$
+$${\color{#C50023} i  \space mean \space rukawa \space kaede \space <𝟑}$$    
 
-$${\color{#E54646} 🏆｡𖦹°‧₊˚⊹♡🏀}$$
-                                                           
+$${\color{#E54646} 🏆｡𖦹°‧₊˚⊹♡🏀}$$           
+
+<img alt="image-removebg-preview (7)" src="https://i.postimg.cc/x1f5F5bB/image-Photoroom.png" width="100"/>                                                           
 </div>                                                                                                                      
 <p align="center">
   <img src="https://64.media.tumblr.com/99ced947cad0243de0d8e82c4265809a/tumblr_neo82dZGTB1qho1uao1_500.gifv" width="670" legnth="1200">
