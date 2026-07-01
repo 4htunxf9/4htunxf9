@@ -1,9 +1,10 @@
 <div align="center">
 
-  [![Hits](https://hits.sh/github.com/4htunxf9.svg?style=plastic&label=shohoku&color=ddddd1&labelColor=710216)](https://hits.sh/github.com/4htunxf9/)      <a href="https://4hf9.atabook.org/">
-  <img atabook width="140">
+  [![Hits](https://hits.sh/github.com/4htunxf9.svg?style=plastic&label=shohoku&color=ddddd1&labelColor=710216)](https://hits.sh/github.com/4htunxf9/)     
+  ★  
+  <a href="https://4hf9.atabook.org/">
+<img src="https://i.postimg.cc/DfYbKcDM/ata-book-Photoroom-(1).png" width="100">
 </a>   
-
 
 <img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/3de084cc-3f79-4ebe-ab4f-49422eaffb93" /><br>
 
