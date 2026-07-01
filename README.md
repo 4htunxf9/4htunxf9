@@ -1,10 +1,17 @@
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=4htunxf9&label=RUKAWA&color=1e1624&style=flat" alt="4htunxf9" /> </p> 
+<p align="center">
+<a href="https://hits.sh/github.com/4htunxf9/"><img alt="Hits" src="https://hits.sh/github.com/4htunxf9.svg?style=for-the-badge&label=TUNX&color=F0FFFF&labelColor=CD2626"/></a>
+
+
+<img width="900" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
+<br><br><br>
+
+
+
 
 <div align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com/?font=Courier+Prime&weight=500&size=15&duration=3400&pause=1200&color=225793&center=true&width=443&height=20&lines=is+it+a+crime+to+be+unsure?;in+time,+we'll+find;if+it's+sustainable;u're+pure;u're+kind;mature;divine;u+might+be+too+good+for+me,;unattainable" alt="Typing SVG" /></a>
-<img width="900" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=18&duration=3300&pause=500&color=cd201f&center=true&width=435&height=28&&height=20&lines=is+it+a+crime+to+be+unsure?;in+time,+we'll+find;if+it's+sustainable;u're+pure;u're+kind;mature;divine;u+might+be+too+good+for+me,;unattainable" alt="Typing SVG" width="390px"/></a>
 
-𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
+  𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
   
 <sub> ࣪   ۫𓂅  hi there! u can call me tunx. ⟢</sub>
 <sub>she﹔her   𝄞݂۫   𓈒  enfp</sub>
@@ -27,9 +34,12 @@
 </div>
 
 <div align="center">
-<sub>im so in love with the emo, nonchalant, dark-haired, good at basketball, handsome, sleepy guy. i mean rukawa kaede <𝟑* </sub>
 
-🏆｡𖦹°‧₊˚⊹♡🏀                                                                                                                       
+$${\color{#8B0016} im \space so \space in \space love \space with \space the \space emo, \space nonchalant, \space dark-haired, \space good \space at \space basketball, \space handsome, \space sleepy \space guy.}$$
+$${\color{#C50023} i  \space mean \space rukawa \space kaede \space <𝟑}$$
+$${\color{#E54646} 🏆｡𖦹°‧₊˚⊹♡🏀}$$
+
+                                                                                                                    
 </div>                                                                                                                      
 <p align="center">
   <img src="https://64.media.tumblr.com/99ced947cad0243de0d8e82c4265809a/tumblr_neo82dZGTB1qho1uao1_500.gifv" width="670">
