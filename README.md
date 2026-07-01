@@ -1,9 +1,11 @@
-<p align="center">
-<a href="https://hits.sh/github.com/4htunxf9/"><img alt="Hits" src="https://hits.sh/github.com/4htunxf9.svg?style=for-the-badge&label=TUNX&color=F0FFFF&labelColor=CD2626"/></a>
+<div align="center">
+
+  [![Hits](https://hits.sh/github.com/4htunxf9.svg?style=plastic&label=shohoku&color=ddddd1&labelColor=710216)](https://hits.sh/github.com/4htunxf9/)
 
 
 <img width="900" height="211" alt="image" src="https://github.com/user-attachments/assets/6593c13c-e2e1-425d-b218-a4de1d7ff7d8" />
 <br><br><br>
+
 
 
 
@@ -44,3 +46,5 @@ $${\color{#E54646} 🏆｡𖦹°‧₊˚⊹♡🏀}$$
 <p align="center">
   <img src="https://64.media.tumblr.com/99ced947cad0243de0d8e82c4265809a/tumblr_neo82dZGTB1qho1uao1_500.gifv" width="670">
 </p>
+
+[![Spotify](https://spotify-recently-played-readme.vercel.app/api?user=9pddhdn3mfcvapx20j2gaehcd)](https://open.spotify.com/user/9pddhdn3mfcvapx20j2gaehcd)
