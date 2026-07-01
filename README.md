@@ -1,3 +1,7 @@
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=19&letterSpacing=-1px&duration=5001&pause=777&color=88091EEE&center=true&width=431&lines=is+it+a+crime+to+be+unsure%3F+;in+time%2C+we'll+find;+if+it's+sustainable;+u're+pure%2C+u're+kind%2C+mature%2C+divine;u+might+be+too+good+for+me%2C;unattainable" alt="Typing SVG" /></a>
+</p>
+<img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/3de084cc-3f79-4ebe-ab4f-49422eaffb93" /><br>
 <div align="center">
 
 [![Hits](https://hits.sh/github.com/4htunxf9.svg?style=plastic&label=shohoku&color=ddddd1&labelColor=710216)](https://hits.sh/github.com/4htunxf9/)     
@@ -5,10 +9,6 @@
   <a href="https://4hf9.atabook.org/">
 <img src="https://i.postimg.cc/DfYbKcDM/ata-book-Photoroom-(1).png" width="100">
 </a>   
-
-<img width="1002" height="211" alt="image" src="https://github.com/user-attachments/assets/3de084cc-3f79-4ebe-ab4f-49422eaffb93" /><br>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=19&letterSpacing=-1px&duration=5001&pause=777&color=88091EEE&center=true&width=431&lines=is+it+a+crime+to+be+unsure%3F+;in+time%2C+we'll+find;+if+it's+sustainable;+u're+pure%2C+u're+kind%2C+mature%2C+divine;u+might+be+too+good+for+me%2C;unattainable" alt="Typing SVG" /></a>
-
   𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
   
 <sub> ࣪   ۫𓂅  hi there! u can call me tunx. ⟢</sub>
