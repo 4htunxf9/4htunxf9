@@ -1,7 +1,7 @@
 <div align="center">
 
   [![Hits](https://hits.sh/github.com/4htunxf9.svg?style=plastic&label=shohoku&color=ddddd1&labelColor=710216)](https://hits.sh/github.com/4htunxf9/)      <a href="https://4hf9.atabook.org/">
-  <img src="https://files.catbox.moe/w316ji.png" width="140">
+  <img atabook width="140">
 </a>   
 
 
