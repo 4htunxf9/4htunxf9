@@ -17,9 +17,9 @@
 <sub>౨౿　17 yo  ; 06/12　﹒ 　︵︵</sub>
 <sub>꒰ ᩧ 𓈒 sagittarius ♐︎ ⁄⁄͈ . ᴗ͈)</sub>
 
-<sub>. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, csm, spy x familyִֶָ </sub>
+<sub>. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, dandadan, evade (rbl), skip to loafer, csm, spy x familyִֶָ </sub>
 
-<sub>˚ ༘ ೀ bias: rukawa kaede (sd), kenzo tenma (monster), faker (t1), angel (csm) ⋆｡ ˚</sub>
+<sub>˚ ༘ ೀ bias: rukawa kaede (sd), okarun (ddd), mitsuri (stl), faker (t1), angel (csm) ⋆｡ ˚</sub>
 
 <sub>᠃ english isn't my first language, i dont talk much (im afraid of making others get me wrong). but im comfortable talking ^_^ </sub>
 
