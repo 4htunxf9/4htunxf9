@@ -1,15 +1,14 @@
-<div align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=19&letterSpacing=-1px&duration=5001&pause=777&color=88091EEE&center=true&width=431&lines=is+it+a+crime+to+be+unsure%3F+;in+time%2C+we'll+find;+if+it's+sustainable;+u're+pure%2C+u're+kind%2C+mature%2C+divine;u+might+be+too+good+for+me%2C;unattainable" alt="Typing SVG" /></a>
-</div>
-<div align="center">
-    <p align="right">
-    <table style="width:100%">
+ <table style="width:100%">
         <tr>
             <td>
                 <br>
                 <br>
                 <div align="center">
-               
+ <div align="center">
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=19&letterSpacing=-1px&duration=5001&pause=777&color=88091EEE&center=true&width=431&lines=is+it+a+crime+to+be+unsure%3F+;in+time%2C+we'll+find;+if+it's+sustainable;+u're+pure%2C+u're+kind%2C+mature%2C+divine;u+might+be+too+good+for+me%2C;unattainable" alt="Typing SVG" /></a>
+</div>
+<div align="center">
+    <p align="right">              
 <p align="center"> <img alt="image-removebg-preview (7)" src="https://i.postimg.cc/x1f5F5bB/image-Photoroom.png" width="100"/></p>   
   𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
   
