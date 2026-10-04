@@ -1,30 +1,18 @@
- <table style="width:100%">
-        <tr>
-            <td>
-                <br>
-                <br>
-                <div align="center">
- <div align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=19&letterSpacing=-1px&duration=5001&pause=777&color=88091EEE&center=true&width=431&lines=is+it+a+crime+to+be+unsure%3F+;in+time%2C+we'll+find;+if+it's+sustainable;+u're+pure%2C+u're+kind%2C+mature%2C+divine;u+might+be+too+good+for+me%2C;unattainable" alt="Typing SVG" /></a>
-</div>
-<div align="center">
-    <p align="right">              
-<p align="center"> <img alt="image-removebg-preview (7)" src="https://i.postimg.cc/x1f5F5bB/image-Photoroom.png" width="100"/></p>   
-  𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
-  
-<sub> ࣪   ۫𓂅  hi there! u can call me tunx. ⟢</sub>
-<sub>she﹔her   𝄞݂۫   𓈒  enfp</sub>
+ <div align="center"> 
 
-<sub>౨౿　17 yo  ; 06/12　﹒ 　︵︵</sub>
-<sub>꒰ ᩧ 𓈒 sagittarius ♐︎ ⁄⁄͈ . ᴗ͈)</sub>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=19&letterSpacing=-1px&duration=5001&pause=777&color=88091EEE&center=true&width=431&lines=is+it+a+crime+to+be+unsure%3F+;in+time%2C+we'll+find;+if+it's+sustainable;+u're+pure%2C+u're+kind%2C+mature%2C+divine;u+might+be+too+good+for+me%2C;unattainable" alt="Typing SVG" /></a>            
+ <p align="center"> ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ 
+<p align="center">   <img alt="image-removebg-preview (7)" src="https://i.postimg.cc/x1f5F5bB/image-Photoroom.png" width="100"/>
+ <p align="center"> 
+ $\scriptsize{\textsf{   ۫𓂅  hi there! u can call me tunx. ⟢}}$<br>
+$\scriptsize{\textsf{she﹔her   𝄞݂۫   𓈒  enfp}}$<br>
+$\scriptsize{\textsf{౨౿　17 yo  ; 06/12　﹒ 　︵︵}}$<br>
+$\scriptsize{\textsf{꒰ ᩧ 𓈒 sagittarius ♐︎ ⁄⁄͈ . ᴗ͈}}$<br>
+$\scriptsize{\textsf{. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, dandadan, evade (rbl), skip to loafer, csm, spy x familyִֶָ }}$<br>
+ $\scriptsize{\textsf{˚ ༘ ೀ bias: rukawa kaede (sd), okarun (ddd), mitsumi (stl), faker (t1), angel (csm) ⋆｡ ˚}}$<br>
+$\scriptsize{\textsf{english isn't my first language, i dont talk much (im afraid of making others get me wrong). but im comfortable to talk :D}}$<br>
 
-<sub>. ..𓂃 ࣪fandom: slam dunk, monster, berserk 𒉭, t1, dandadan, evade (rbl), skip to loafer, csm, spy x familyִֶָ </sub>
-
-<sub>˚ ༘ ೀ bias: rukawa kaede (sd), okarun (ddd), mitsuri (stl), faker (t1), angel (csm) ⋆｡ ˚</sub>
-
-<sub>᠃ english isn't my first language, i dont talk much (im afraid of making others get me wrong). but im comfortable talking ^_^ </sub>
-
-<a href="https://4hf9.atabook.org/">atabook</a>
+<a href="https://4hf9.atabook.org/">atabook</a> 
 
 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
 
